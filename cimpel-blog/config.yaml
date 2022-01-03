@@ -14,7 +14,7 @@ permalinks:
 
 params:
   mainSections:
-    - post
+    - posts
   featuredImageField: image
   rssFullContent: true
   favicon:
@@ -56,8 +56,10 @@ menu:
       weight: -100
       params:
         ### For demonstration purpose, the home link will be open in a new tab
-        newTab: true
+        newTab: false
         icon: home
+
+  
 
 related:
   includeNewer: true
