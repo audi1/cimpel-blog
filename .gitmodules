@@ -1,6 +1,6 @@
-[submodule "hugo-theme-stack"]
-	path = hugo-theme-stack
-	url = https://github.com/CaiJimmy/hugo-theme-stack.git
 [submodule "themes/stack"]
 	path = themes/stack
+	url = https://github.com/CaiJimmy/hugo-theme-stack.git
+[submodule "cimpel-blog/themes/stack"]
+	path = cimpel-blog/themes/stack
 	url = https://github.com/CaiJimmy/hugo-theme-stack.git

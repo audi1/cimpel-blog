@@ -1,5 +1,83 @@
-baseURL: 'http://example.org/'
-languageCode: 'en-us'
-title: 'My New Hugo Site'
+baseURL: "http://example.org/"
+languageCode: "en-us"
+title: "Cimpel's Blog"
+paginate: 10
 
 theme: stack
+
+DefaultContentLanguage: en
+
+permalinks:
+  post: /p/:slug/
+  page: /:slug/
+
+
+params:
+  mainSections:
+    - post
+  featuredImageField: image
+  rssFullContent: true
+  favicon:
+
+  sidebar:
+    emoji: 
+    subtitle: The Epic Saga of LSS
+    avatar:
+      enabled: true
+      local: true
+      src: img/avatar.png
+
+  dateFormat:
+    published: Jan 02, 2006
+    lastUpdated: Jan 02, 2006 15:04 MST
+
+  article:
+        math: false
+        toc: true
+        readingTime: true
+
+  widgets:
+    enabled:
+      - search
+      - archives
+      - tag-cloud
+
+    archives:
+      limit: 5
+
+    tagCloud:
+      limit: 10
+
+menu:
+  main:
+    - identifier: home
+      name: Home
+      url: /
+      weight: -100
+      params:
+        ### For demonstration purpose, the home link will be open in a new tab
+        newTab: true
+        icon: home
+
+related:
+  includeNewer: true
+  threshold: 60
+  toLower: false
+  indices:
+    - name: tags
+      weight: 100
+
+    - name: categories
+      weight: 200
+
+markup:
+  goldmark:
+    renderer:
+      ## Set to true if you have HTML content inside Markdown
+      unsafe: false
+  tableOfContents:
+    endLevel: 4
+    ordered: true
+    startLevel: 2
+  highlight:
+    noClasses: false
