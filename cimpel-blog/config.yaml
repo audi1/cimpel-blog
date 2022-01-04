@@ -1,4 +1,4 @@
-baseURL: "http://example.org/"
+baseURL: "https://cimpel-blogs.netlify.app/"
 languageCode: "en-us"
 title: "Cimpel's Blog"
 paginate: 10
