@@ -18,9 +18,7 @@ Shadow also came first with his eight copies, and Nick handed him Brazerr shakil
 Nick was pensive, he didn't want to fight, he was very sorry for yesterday, he said it in alcohol intoxication ...\
 The "Three Sisters" of the once feared warriors arrived. In the first conflicts, DD plundered enemy tiles and burned cities, but today they are older menopausal women who prefer to sit at home and hack beautiful tablecloths ...
 
-![](cimpel-blog/img/babky.jpeg-mensie.jpg)
 
-![](cimpel-blog/img/images.jpeg-3.jpg)
 
 \
 The glass palace door opened and Sven and Hunk came down, shouting "BOJ" in unison.\
