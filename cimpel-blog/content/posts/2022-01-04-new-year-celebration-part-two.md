@@ -2,6 +2,10 @@
 title: New Year celebration part two
 date: 2022-01-04T18:45:59.455Z
 description: New Year celebration part two
+tags:
+  - LSS
+categories:
+  - LSS
 ---
 WSQ stood on the steps to look more majestic and began to recap the year 2021!
 She awarded honors to veterans of the Battle of the Devil's Gorge, and praised the greatest warriors of present-day Eden, who will still receive their rewards. She evaluated the migration to 554 and thanked the new members for trust and strengthening hMB!
