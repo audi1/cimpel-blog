@@ -17,7 +17,7 @@ params:
     - posts
   featuredImageField: image
   rssFullContent: true
-  favicon: img/favicon.ico
+  favicon: favicon.ico
 
   sidebar:
     emoji: 
@@ -25,7 +25,7 @@ params:
     avatar:
       enabled: true
       local: true
-      src: img/496707.jpg
+      src: 496707.jpg
 
   dateFormat:
     published: Jan 02, 2006
