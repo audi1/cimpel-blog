@@ -25,7 +25,7 @@ params:
     avatar:
       enabled: true
       local: true
-      src: img/avatar.png
+      src: static/img/496707.jpg
 
   dateFormat:
     published: Jan 02, 2006
