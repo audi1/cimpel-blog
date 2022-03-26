@@ -17,7 +17,7 @@ params:
     - posts
   featuredImageField: image
   rssFullContent: true
-  favicon:
+  favicon: img/favicon.ico
 
   sidebar:
     emoji: 
