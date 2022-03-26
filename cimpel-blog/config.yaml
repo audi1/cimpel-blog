@@ -24,7 +24,6 @@ params:
     subtitle: The Epic Saga of LSS
     avatar:
       enabled: true
-      local: true
       src: img/496707.jpg
 
   dateFormat:
