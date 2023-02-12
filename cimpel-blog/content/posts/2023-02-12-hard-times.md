@@ -20,7 +20,6 @@ Cimpel took out a piece of bloody paper "I found this letter yesterday on the ba
 
 My beloved
 
-
 I'm writing you these lines because I don't know if we'll meet again. The shield wall has just fallen and the enemy APCs are rushing to our positions, I am in the front line and I have to hold back the incoming enemies!!! I could teleport and come to you my beloved love, but I can't because I'm HmB and I wouldn't be able to live knowing that I ran away and had my HmB brothers massacred!!! So now I have to organize my APC and give my great friends and brothers in arms time to evacuate! I want you to know, my beloved, that I will go into my last fight with a smile and I will joyfully defend the evacuation of my brothers from HmB, and I want you to know that my last thought before I meet God will be about you!!!
 I already wrote to you in previous letters that we had a great season, yes, we had many defeats and the enemy pushed us to our basic borders, but we also had successful attacks and decimated the enemy's bases, stole their cities and bridges. That's what Eden is about, sometimes you win, sometimes you lose, but the fact that I can fight with great people and my brothers in arms under the banner of the HmB guild is the main thing!!! There is always good fun in the camp, we laugh a lot and help each other and make sacrifices for each other.
 we are simply a family and a family sticks together even in difficult times!!!
@@ -34,7 +33,7 @@ Cimpel read the letter with tears in his eyes.
 "The blood on the paper dissolved the ink, so we'll never know," said Cimpel with regret, "but the unknown hero is right, he got HmB right, we are family and family sticks together no matter how bad the season is, we always stick together!!! Cimpel added.
 "Carve the words in that letter in stone!" added Felsa "we had a lot of fun, made new friendships and that's for life!"
 "You're right friends, keep your head up, our fight is not over yet, let's defend our cities and make the end of Eden unpleasant for the enemy, so that they will always know that HmB are not cowards who run away from the fight!" said WSQ Lene, now in a fighting mood
-Loud singing suddenly began to be heard from Tabor. "That letter really motivated and opened our hearts," added Issie with a smile.
+Loud singing suddenly began to be heard from camp. "That letter really motivated and opened our hearts," added Issie with a smile.
 "Oh no, it's just Any, Big Sveny and a bunch of Teutonic knights have been drinking beer since yesterday and now they've also got the taste to sing" said Lene with a laugh
 Everyone around the fire started to laugh and there was no trace of the bad mood.
 This is exactly what HmB is all about, friends!!!!!
