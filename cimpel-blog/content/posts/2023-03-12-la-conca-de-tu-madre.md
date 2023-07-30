@@ -6,7 +6,7 @@ description: One story from different people's point of view
 Burzum woke up to warning trumpets, shouts and the ringing of bells. He jumped out of bed and, still sleepy, ran to the terrace of his apartment.
 "Shit, why are you making so much noise? I will have you executed. Who started this combat readiness exercise?" shouted Burzum from the terrace.
 "El Patron, this is not an exercise, the enemy is approaching, we are surrounded!!!"
-Burzum was amazed and in the clouds of dust he really saw the approaching enemy APCs burning the ground and approaching fast. "Puta, puta, puta madre, Zeo i hate you! Ooo Zeo, cabron, you told me yesterday, move down to the river, it's quiet, there's a nice view of the river and the ancient gate beyond the river, and above all , there are rich tile pastures." Burzum recalled yesterday's conversation with Zeo
+Burzum was amazed and in the clouds of dust he really saw the approaching enemy APCs burning the ground and approaching fast. "La concha de tu madre! Zeo i hate you! Ooo Zeo, cabron, you told me yesterday, move down to the river, it's quiet, there's a nice view of the river and the ancient gate beyond the river, and above all , there are rich tile pastures." Burzum recalled yesterday's conversation with Ze
 "I knew I couldn't go here, there are a lot of mosquitoes by this fucking river and today we are already under attack." Lamented Burzum "hey Cabrones, start the defense protocol, everyone to your positions, charge all apc with T10, we will win this battle and the enemy will see that Burzum has a big cohones."
 The defense managed the first enemy attacks brilliantly with minimal losses, Burzum directed the defenders with a smile, arranged the APC in formation, everything was still going according to his ideas.
 "You just have to hold on for a while, help is on the way and we will scatter the enemy on the battlefield" shouted Burzum in a good mood with a glass of fresh mare's milk in his hand.
@@ -15,7 +15,8 @@ Suddenly the ground shook and Burzum was covered in mare's milk "WTH Maze just p
 "Puta, puta puta puta, hijos de puta, if we are to be defeated, then with all that goes with it and with great glory." Burzum shouted and went to put on his ceremonial armor.
 In blue armor with white belts and with the Yellow Sun on his chest, Burzum mounted his horse, took his long bull-slaying spear into his hand and signaled to the defenders guarding the main gate to open it.
 When the main gate of his base opened, he launched a counterattack with his group of loyal riders!!!
-“ATTAAAAAAAAAAACKKKKK!!!!! He shouted and during a fast gallop he started to sing loudly: Don't cry for me, Argentina
+“ATTAAAAAAAAAAACKKKKK!!!!! He shouted and during a fast gallop he started to sing loudly: 
+Don't cry for me, Argentina
 The truth is, I never left you
 All through my wild days, my mad existence
 I kept my promise
@@ -27,12 +28,12 @@ They are illusions, they are not the solutions they promised to be
 The answer was here all the time
 I love you, and I hope you love me
 Don't cry for me, Argh...
+
 A terrible blow threw Burzum off his horse, during the fall he last saw how his base was shaking in its foundations, first his walls collapsed with a terrible cloud and in a wave of dust and smoke, his beloved base also collapsed like a house of cards... .
+
 Maze, the princess of Hamburg, the port guard, woke up and enjoyed her favorite hot bath after a light breakfast. She threw off her robe and slowly slipped into the bath full of foam and essential oils. She loved the feeling when the warm water gently caressed her velvety skin and her body relaxed perfectly. After an hour of lying in the bath, she began to wash her flexible body very carefully, first with circular movements she was washing her firm breasts, gently stroking her nipples with the fingers of her left hand and very slowly approaching her crotch with her right hands. "Oh I feel the fine hairs" Maze was shocked, she immediately took her sharp dagger and started to depilate her long sexy legs.
 
-
 "Dagger, why are you going to shave with a dagger??? Only hot wax will guarantee that your body will be perfectly smooth, use hot wax!!!" shouted Sunshine (Oh sorry, that's another story)
-
 
 But suddenly she was interrupted by a pleasant voice "Princess Your Excellency, the work on your Teleport is finished, but we have to sound the alarm, the enemy has attacked the tiles around the teleport, we have to send an APC from afar to defend the tiles and friends" Maze is an experienced commander, she has fought hundreds of battles even she didn't look up from depilating her legs and promptly gave the orders to mobilize the forces, fill the APCs, and bring her Black Gold-Rimmed Armor .
 "Are you still here???" Maze asked and finally looked at the messenger. "It's you Cimpel? doing here, why didn't my servants deliver the news?" Maze asked and slowly stood up.
@@ -45,7 +46,6 @@ Cimpel first ran his hand gently over the pussy and then with the precise moveme
 Cimpel started caressing the smooth legs of the was approaching and slowly approached Pussy. Maze was very excited by the touch of Cimpel's strong hands as he slowly stroked her legs up and down. Maze began to breathe excitedly, moan softly, and her hips began to move uncontrollably. She grabbed Cimpel's hand and quickly moved to her wet pussy.
 At that the ground trembled, it seemed as if the walls of the palace would collapse at any moment.
 "Oh yes, yes yes, yeeeeee," exclaimed an uncontrollably excited Maze. During the rhythmic movements of Cimpel's hand, the Princess's body was filled with such strong excitement and pleasure that in a millisecond it exploded into a terrible intense orgasm!. Exactly one second after the terrible orgasm, her palach teleported to the center of the biggest fights, immediately led by Burzum...
-
 
 "WTH Maze just ported to the middle of the fights? Oh, does that bitch want to steal all our glory, or did she just come to help us in the fight?" Burzum pondered when he saw how Maze had just teleported. "Actually, it doesn't matter, there's enough glory and kills for everyone" Burzum laughed out loud.
 
