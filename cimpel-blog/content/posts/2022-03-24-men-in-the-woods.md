@@ -8,7 +8,7 @@ categories:
   - LSS
 ---
 Floppy was waiting in front of the house for Bacon, who he called to help him, because lately, he had found dead animals on his territory, and some tramps were moving on his land, who had hammered sticks into the ground, supposedly looking for an old Roman road.
-Floppy was very nervous about this, so she called Bacon's help to solve these mysteries together or help him fight and hunt !.
+Floppy was very nervous about this, so he called Bacon's help to solve these mysteries together or help him fight and hunt !.
 It was a nice October day, the fragile rays of the sun were still warm, but the cold north wind was already blowing. Two men were about to enter the dense forest, and one last time they looked around to see if they were really alone.
  Floppy and Bacon stepped carefully so as not to make a noise in the woods. Were they on the hunt to hunt? So far, they didn't know what it would be like. According to the tracks, it could have been a bear, but it could easily have been a wanderer who put their tracks in order to confuse them when tracking ..
 The floppy stopped to recover, and when he turned he saw Bacon start undressing.
@@ -19,13 +19,13 @@ Bacon answered promptly. "Quickly join too and we will apply this special ointme
 Bacon pretended not to hear him, undressed naked, and began to roughly paint the mysterious ointment.
 "It's according to an old deer fat recipe with a mixture of herb glue and wax and bull testicle extract, it protects us from intrusive insects and masks our odor so we don't scare the bear," Bacon explained.
 "Fuck, you still have to make some total crap! But I'll give it a try, because I no longer enjoy having fun here!" Floppy said angrily, and he undressed and greased.
-"It's quite nice and it's quite warm, and I'm used to the smell," Floppy said.
+"It's quite nice and it's pleasure  warms, and I'm used to the smell," Floppy said.
 But after a while of walking in the woods, the ointment began to harden uncomfortably and the cell remained sticky.
 The blowing wind spread the fallen leaves of the trees and they stuck to their bodies with the sticky smelly emulsion.
 
 "What the fuck does that mean, I look better on me like an idiot and it all starts to itch, why did I just listen to you?"
 "Hold on now, we're invisible in the woods, that's the trick," Bacon said
-"Fuck now I see that some of the leaves are shit, someone shit in the woods and wiped the dirty ass on the leaf and now it's blowing on me" Floppy shouted
+"Fuck now I see that some of the leaves is dirty shit, someone shit in the woods and wiped the dirty ass on the leaf and now it's blowing on me" Floppy shouted
 "And flies are flying at me, they were trying to catch the bird that crashed into me, so I'm full of fucking leaves, insects and prairies !!!" Floppy shouted angrily
 "By the way, when we meet the bear, we have to throw shit him in the eye first and then kill him with long spears!"
 "What shit where do we get shit?" Floppy said irritably
